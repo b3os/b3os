@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **khangminhbui343@gmail.com**
 
-- ⚡ Fun fact **I like playing LOL**
-
 - 🔭 I’m studying on **FPT UNIVERSITY**
 
 <h3 align="left">Connect with me:</h3>
